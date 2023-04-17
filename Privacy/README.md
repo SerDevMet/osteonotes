@@ -1,0 +1,2 @@
+# OsteoNotes
+## **Privacy Policy**
